@@ -11,5 +11,3 @@
 
 ![Screenshot 1](https://user-images.githubusercontent.com/69078293/152050303-c90c49a4-96ff-4e32-abe8-941688e4eadf.png)
 ![Screenshot 2](https://user-images.githubusercontent.com/69078293/152050301-b71e2803-c8e5-4eb8-b572-124b10b7fd43.png)
-
-Join **Only Friends** today and discover a new world of friendships waiting for you!
